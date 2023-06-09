@@ -1,1 +1,1 @@
-# Hi, I'm toko.
+# Hi, I'm Tomasz Kośnikowski (toko[x]).
